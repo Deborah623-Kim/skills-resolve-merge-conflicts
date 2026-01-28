@@ -1,3 +1,4 @@
 # References
 
-* octocat 1 😈
+- My resume references will be added later.
+- Contact: Deborah
